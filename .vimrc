@@ -1,0 +1,1 @@
+ino jk <ESC>
